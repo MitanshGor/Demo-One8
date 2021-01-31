@@ -1,18 +1,7 @@
-sfbzdgb
-
-zxvb
-
-zdgjgfufhfhfufutfutyfytf
-b
-
-ztp_mlsd
-dns_get_mxdgbdggb
-fgdg
-b
-shm_detachgfxgnfgnfhh
-oxgjcghjcgjmvhjmcgjdgmc;'ftp_mlsdfthzdg'
-
-'dgkssjfgka
-skfuuhgkhsg
-khshfkgskfg
-hsbfj
+<!doctype>
+<html>
+  <head>
+  </head>
+  <body>
+  </body>
+</html>
